@@ -15,3 +15,4 @@ Meu nome é _Libna_ _Oliveira_
 00001075011772sp@al.educaucao.sp.gov.br
 
 @Libna_07
+![](https://tenor.com/pt-BR/view/heart-hands-emoji-gif-26968477)
