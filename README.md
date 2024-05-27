@@ -10,7 +10,7 @@ Meu nome é _Libna_ _Oliveira_
 
 -Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Você pode entrar em contato comigo 📫
+## Você pode entrar em contato comigo 📫
 
 00001075011772sp@al.educaucao.sp.gov.br
 
